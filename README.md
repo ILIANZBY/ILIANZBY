@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+![2b3e8f14171a7e0daabd76b9bc83646](https://github.com/user-attachments/assets/07e36f7c-1ecc-466a-9d05-ee2da82f16a6)
+
+
+I am a student from SCUT,welcome to communicate with me!
 <!--
 **ILIANZBY/ILIANZBY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
